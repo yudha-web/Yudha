@@ -49,3 +49,57 @@ D:
 G:
 
 A:# Yudha
+
+
+
+di lanjut dengan
+
+- Acara yang kedua sambutan-sambutan
+
+- Pembacaan ayat suci alquran menempati acara yang ketiga
+
+- Acara keempat Tausiyah
+
+- Do'a dan penutup menempati rangkaian acara terakhir
+
+A: Untuk mengawali acara ini dan dengan harapan supaya acara ini berjalan dengan lancar mari kita buka dengan membaca Ummul Kitab "Ala hadihiniyah Wabikuli niyatin sholihah Al-fatihah"
+
+-Terima kasih, atas bacaaan suratul fatihanya
+
+krenda Bapak Jefri Kisnani
+
+D: Acara selanjutnya yaitu sambutan-sambutan. Sambutan pertama dari ketua panitia kel Kisnani dipersilahkan. Runi spd Roni Terimakasih kepada Bapak jefri atas sambutannya.
+
+yg pada Asesempatan
+
+Eali ini di wakilkan
+
+A: Sambutan kedua dari kuwu desa karangampel. Kepada Bapak Mamat Roiyatul Anwar dipersilahkan
+
+Terimkasih kepada Bapak mamat atas sambutannya.
+
+DV
+
+A:
+
+Alangkah indah dan sahdunya hati ini, jika dilantunkan ayat-ayat Allah SWT. oleh karena itu marilah kita dengarkan pembacaan kalam ilahi, yang kali ini akan dilantunkan oleh
+
+Ust Wahyudin. Kepada Ust Wahyudin dipersilahkan. Maha banar allah dengan segala firmannya
+
+-Sodaqallahuladzim, sungguh indah lantunan ayat suci Al-qur'an tadi, semoga kita semua bias mendapatkan syafaat dari Alquran. Aamiin aamiin ya robbal alamin.
+
+Hadirin yang dimuliakan Allah SWT.
+
+3 rangkaian acara telah kita lewati, maka sekarang kita masuk pada acara Tausiyah yang akan disampaikan oleh almukarom Kyai Warsita, Kepadanya dipersilahkan
+
+Terimakasih banyak kepada Almukarom Kyai Warsita. Mudah-mudahan apa yang sudah disampaikan bisa kita amalkan dalam kehidupan sehari-hari
+
+D: Acara yang terakhir yaitu penutup, sebelum acara kita tutup kami mewakili panitia Maulid Nabi Muhammad SAW mengucapkan terima kasih atas kehadiran-nya dan mohon maaf yang sebesar-besarnya jika ada perkataan, perbuatan yang kurang beerkenan dihati para hadirin semua.
+
+Sekian dari kami kurang dan lebihnya mohon maaf
+
+Kami Akhiri
+
+Wallahul Muwafiq illa aqwamit thoriq
+
+B: Wassalamu'alaikum wr.wb
